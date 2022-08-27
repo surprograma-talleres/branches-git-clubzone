@@ -5,7 +5,7 @@ Solito en el monte
 Donde el día esconde
 Lumbre de la tierra
 Ceniza de sol.
-
+alma
 Lapacho
 También en mi alma
 La vida
