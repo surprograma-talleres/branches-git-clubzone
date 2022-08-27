@@ -2,7 +2,7 @@
 
 cambio
 Mapacho
-Solito en Hurlingham
+Solito en Ituzaingo 
 Donde el día esconde
 Lumbre de la tierra
 Ceniza de sol.
